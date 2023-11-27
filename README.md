@@ -15,7 +15,7 @@
 
 - 📄 Know about my experiences [https://drive.google.com/file/d/17xDDqvgrAf5qeo1YUkef-8BYolTQNsiI/view?usp=sharing](https://drive.google.com/file/d/17xDDqvgrAf5qeo1YUkef-8BYolTQNsiI/view?usp=sharing)
 
-- ⚡ Fun fact **I love ❤️Z**
+- ⚡ Fun fact **I love ❤️ bugs**
 
 <p align="left">
 <a href="https://linkedin.com/in/https://www.linkedin.com/in/avuku-pragatheswari-b64061247/" target="blank"><img align="center" src="https://raw.githubusercontent.com/rahuldkjain/github-profile-readme-generator/master/src/images/icons/Social/linked-in-alt.svg" alt="https://www.linkedin.com/in/avuku-pragatheswari-b64061247/" height="30" width="40" /></a>
