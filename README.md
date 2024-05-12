@@ -15,7 +15,7 @@
 
 - 📫 How to reach me **pragatheswaria@gmail.com**
 
-- 📄 Know about my experiences [https://drive.google.com/file/d/17xDDqvgrAf5qeo1YUkef-8BYolTQNsiI/view?usp=sharing](https://drive.google.com/file/d/17xDDqvgrAf5qeo1YUkef-8BYolTQNsiI/view?usp=sharing)
+- 📄 Know about my experiences [Take a look into my resume](https://drive.google.com/file/d/1MHT6eRYmYBwYFokVYmmgFGu5y-MG94u1/view?usp=sharing)
 
 - ⚡ Fun fact **I love ❤️ bugs**
 ## Education
